@@ -1,5 +1,5 @@
 
-## Hi There! I'm Thiago ✌️
+## Hi there! I'm Thiago ✌️
 
 ## 👨‍💻 Tecnology Stack
 
